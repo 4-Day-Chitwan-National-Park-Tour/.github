@@ -36,4 +36,4 @@ Also: [4 Day Chitwan National Park Itinerary](https://gorkhatravel.com/blog/4-da
 
 Chitwan National Park offers an incredible blend of wildlife, culture, and adventure. By respecting park rules and engaging with local communities, visitors can enjoy a safe and enriching experience in one of Nepal’s most treasured natural habitats.
 
-More Inforamtion: [4 Day Chitwan National Park Itinerary](https://gorkhatravel.com/blog/4-day-chitwan-national-park-itinerary)
+More Information: [4 Day Chitwan National Park Itinerary](https://gorkhatravel.com/blog/4-day-chitwan-national-park-itinerary)
